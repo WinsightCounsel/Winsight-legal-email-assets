@@ -1,0 +1,1 @@
+# Winsight-legal-email-assets
